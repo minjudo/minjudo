@@ -38,7 +38,7 @@
 (꼭 들으삼요 안들음면 김민주임 ㅋㅋ)
 
 - 정이라고 하자
-(이게 처음 알게된 노래였는데 이때부터 짝사랑을 하게됬어요)  
+(이게 처음 알게된 노래였는데 이때부터 짝사랑 시작인거였죠)  
 - vancouver1,2
 - 을
 - 딱 10cm만
@@ -51,13 +51,7 @@
 - 파주 한가람 중학교 졸업
 - 파주 지산고등학교 졸업
 - 동양미래대학교 재학중 
-![](https://lh3.googleusercontent.com/pw/ADCreHddB07bTyBWVikZ-GbFi2szawePisF2Rt8desT25BvvjXNBnJu-aLhBZcxpPRWBny7pe7DSdmyGkIZNVpXkBlSPRe7jYEzcb9PWWWrPXxNwD6HDfU3HovH0uWZgtBM4H_bCaxPeRWiYUj5xE5lskbvXMTmZt5nirvKjXqyzK6nJCGcWWaYD0Gbr2gkxPdiRS-gwJWExi1V0j1X_iY2eIDoabdwxDg9q1qG1XBvO6M2JiHNN-9H4W4pMFJssotrUfAlsxlRqVPQzbyp5zNERV2gkxk6U3zw4n3aoSUmf69TQqsMWWv6bgZAlAnvAXi9sfDdmtKKCjt4IUdypdpMPOzDhV2CrwqNyBa8hnh4gJWfgmh_b8UXA9YhpghCq47Tb5wbWWXezhzoZMKe6ewmLBhwYdqeJiZcFtESb8DAXST-gx5PF7TD6_ag-7jILK_YHEfso7Er2gW8wpc06tYAQIQYNNSC97ClllGg4hRUNxidtv-N1Ojdi4gDwNbKjvf5ByQhudI1QbOuyHkQ5w421MKgKQ-LuKElMOuLN4sKiHZdlQ9jjB-uvEWXKxGLMuLEPRDAp8OrU2st9O4BwCHpRdaFxgzSE6rWLh0V9PpYyQM96R9mPkJQNB0joLYHojGdYwd2z3IBDPWVK0QWRFkWJRg_h_Gs3fvLeRsnaEcG2AsZuITvfcDnSHD0sN5atb2BiX2bJTK_LsUCm_oiibCyGZHTFsKT5Vcw_Ul0f3a7as_X9iLCfcvXXIQ93uF6NZk_hQMaBmxTwrzdO5OmJmGzIKAX8aZJ71-3QhAy_4FhqMUEPCZUj0CQvJeuA7cvCJpSem-fpUQpcU3thxkfvkUT7vAdBda24UOYbCi_uNkqmQK1Nc7AR9uFHv26VbjDPo6CBHA=w1266-h1266-s-no?authuser=0)
-
-
-# 내 이상형
-요즘 날씨도 추운데
-
-
+  
 
 
 

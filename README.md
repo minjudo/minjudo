@@ -30,13 +30,13 @@
 
 # 내 최애🤍
 
-![](https://cdn.dailycc.net/news/photo/202306/745972_646536_157.jpg)
+![](https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2FMjAyMzA2MDhfMTM4%2FMDAxNjg2MTk5NjIwNjky.REH59jZexDrpgPQGzq8Kw3gbLbjnweyWnoL4-BCbDCMg.MMW90LPnmyhRi4rAWcFrldUL8xBvqn4iU9uD7v3dbnYg.JPEG.qkrdmsdhr95%2FIMG_7060.jpg&type=sc960_832)
 
 
 그는 바로 빅나티(서동현)! 진짜 이사람은 안좋아할 수가 업서요 제가 몇곡 추천해줄게요 
 (꼭 들으삼요 안들음면 김민주임 ㅋㅋ)
 
-- 정이라고하자
+- ![](https://youtu.be/iZEXqZoIK_Q?si=eTW9KGjJitx4M0iR)
 (이게 처음 알게된 노래였는데 이때부터 짝사랑 시작이였죠)  
 - vancouver 1,2
 - 을
